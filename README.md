@@ -1,2 +1,0 @@
-# merquimateo.com
-merquimateo.com
